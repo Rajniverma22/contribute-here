@@ -1,4 +1,4 @@
-- Rajni verma  🚀 Let's Contribute Together!
+r- Rajni Vermaa  🚀 Let's Contribute Together
 
 Welcome to the practice repo. Follow the steps below to contribute:
 
